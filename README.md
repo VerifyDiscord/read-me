@@ -2,6 +2,7 @@
 
 **LINKS**
 - Invite the bot _(Not out yet)_
+- Click [here](https://discord.gg/bCPqyR9Yqz) to join the support server!
 - [Twitter](https://twitter.com/CytoDiscord)
 
 **About Us**
